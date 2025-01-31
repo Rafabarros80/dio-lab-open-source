@@ -4,6 +4,8 @@
    Working and studying to start a new career in IT field.
    I’m interested and fascinated in tech.
 
+   Projects in College: "C" Language (LinkedIn repository)
+
 🌱 I’m currently learning Blockchain and looking forward to collaborate on new projects and grow up with proficiency. Always seeking trying my best to become an excellent professional on this field.
 
    How to reach me: rafabarros80@hotmail.com                           
